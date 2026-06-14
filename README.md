@@ -30,4 +30,4 @@ Hey there; here's a showcase of the stuff i'm most proud of!
 
 ---
 
-**Portfolio by SillyKitr** | [GitHub](https://github.com/SillyKitr)
+Thank you so much for reading!
